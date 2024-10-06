@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ZaiyanLi from Shanghai, China
+- 👀 I’m interested in AIGC, coding, and business development in the future world.
+- 🌱 I’m currently learning Stable Diffusion, Flux, Ubantu(maybe)
+- 💞️ I’m looking to collaborate on AIGC business x the world.
+- 📫 Reach me via: ravenli1208@gmail.com  
+- 😄 Love sports, painting, and being a better self.
+- ⚡ Fun fact: weak in sports, tech, and paiting. 
